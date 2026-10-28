@@ -1,0 +1,1 @@
+1xbit-bangladesh.com — Cloudflare Pages static deploy. Upload ZIP contents at the project root. Four SEO pages and /go/ affiliate redirect. Only 1xBit affiliate link is supplied; other casino links remain pending. Verify regional bonus availability and legal compliance before publication.
